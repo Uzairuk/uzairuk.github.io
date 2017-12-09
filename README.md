@@ -1,2 +1,2 @@
 # uzairuk.github.io
-we are learning something new today huraaaaay
+we are learning something new today.
